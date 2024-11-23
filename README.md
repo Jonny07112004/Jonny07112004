@@ -1,5 +1,5 @@
 # 💫 About Me:
-Kevin Kumar<br>BSC.IT Student | Cycling Enthusiast | Code Explorer<br>Pursuing Bachelor of Science in Information Technology (2021)<br>Passionate about building innovative solutions and exploring new technologies<br>I am an avid cyclist, always looking for new routes to explore<br>Let's collaborate and create something amazing! < kevinkumar1909@gmail.com />
+Kevin Kumar<br>BSC.IT Student | Cycling Enthusiast | Code Explorer<br>Pursuing Bachelor of Science in Information Technology (2021)<br>Passionate about building innovative solutions and exploring new technologies<br>Let's collaborate and create something amazing! < kevinkumar1909@gmail.com />
 
 
 ## 🌐 Socials:
